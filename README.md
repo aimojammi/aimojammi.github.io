@@ -1,1 +1,0 @@
-# aimojammi.github.io
